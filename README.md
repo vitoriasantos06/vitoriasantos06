@@ -70,6 +70,28 @@ _- Mousses_
 
 
 ![Image](https://user-images.githubusercontent.com/116592288/200639614-9222ddd1-75bf-4e7d-947f-a3311ef86db9.png)
+### _OS QUERIDINHOS DA GALERA:_
+
+
+
+
+![Image](https://user-images.githubusercontent.com/116592288/200641448-09b8dc64-351c-4d11-9b3b-af6229a2b5f4.png)
+
+**R$34,89** 
+
+
+
+
+![Image](https://user-images.githubusercontent.com/116592288/200641745-aa19a916-0e81-4598-be7e-513a529e6129.png)
+
+**R$18,90**
+
+
+
+
+![Image](https://user-images.githubusercontent.com/116592288/200642106-89d20c78-1450-48d3-930d-747144ebf70b.png)
+
+**R$28,79**
 
 
 
