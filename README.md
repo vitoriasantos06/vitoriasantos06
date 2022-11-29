@@ -107,7 +107,13 @@ _- Mousses_
 ### **_PARCELAMOS EM ATÉ 3x SEM JUROS_**
 ### **_COMPRAS À VISTA COM 5% DE DESCONTO_**
 ### **_ACEITAMOS PIX 👍_** 
+### __FREQUENTEMENTE COMPRADOS JUNTOS:__
 
+
+
+![Image](https://user-images.githubusercontent.com/116592288/204629368-47d63ec0-3eb1-4c8d-83c6-ee54df3f9bb6.png)
+
+**_COMPRE OS 3: R$ 94,77_**
 
 
 
