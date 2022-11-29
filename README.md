@@ -21,13 +21,21 @@
 *Av. Iguaçu, 820- Rebouças, Curitiba - Pr, 80230-020*
 
 **- Romance**
+
 **- Fantasia**
+
 **- Terror**
+
 **- Suspense**
-**- Ficção científica** 
+
+**- Ficção científica**
+
 **- Crônica**
+
 **- Conto**
+
 **- Drama**
+
   **Entre outros!**
 
 
@@ -41,30 +49,47 @@
 _BEBIDAS:_
 
  _- Café expresso_
+ 
  _- Café coado_
+ 
  _- Cappuccino_
+ 
  _- Chocolate quente_
+ 
  _- Café gelado_
+ 
  _- Suco natural_
 
 _SALGADOS:_
 
  _- Misto quente_
+ 
  _- Pão na chapa_
+ 
  _- Pastel_
+ 
  _- Coxinha_
+ 
  _- Torta salgada_
+ 
  _- Empada_
+ 
  _- Croissant_
+ 
  _- Pão de queijo_
+ 
  _- Sanduíche natural_
 
 _DOCES:_
 
 _- Bolo simples_
+
 _- Bolo recheado_
+
 _- Croissant de chocolate_
+
 _- Tortinhas doces_
+
 _- Mousses_ 
 
 
