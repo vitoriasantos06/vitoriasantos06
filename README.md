@@ -113,7 +113,7 @@ _- Mousses_
 
 ![Image](https://user-images.githubusercontent.com/116592288/204629368-47d63ec0-3eb1-4c8d-83c6-ee54df3f9bb6.png)
 
-**_COMPRE OS 3: R$ 94,77_**
+**_COMPRE OS TRÊS: R$ 94,77_**
 
 
 
