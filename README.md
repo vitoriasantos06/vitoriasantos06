@@ -103,7 +103,7 @@ _- Mousses_
 
 ![Image](https://user-images.githubusercontent.com/116592288/204623284-b59309e9-7843-4b38-8601-d51bb742df4c.png)
 
-### **_COMPRAS ACIMA DE R$100,00_**
+### **_COMPRAS ACIMA DE R$ 100,00_**
 ### **_PARCELAMOS EM ATÉ 3x SEM JUROS_**
 ### **_COMPRAS À VISTA COM 5% DE DESCONTO_**
 ### **_ACEITAMOS PIX 👍_** 
